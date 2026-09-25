@@ -1,6 +1,6 @@
 
 
-## Hi there👋 this is Andrea:sunglasses: 
+## Hi there👋 this is Andrea :sunglasses: 
 
 
 Currently studing IT :computer:
